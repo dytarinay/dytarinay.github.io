@@ -1,1 +1,0 @@
-# dytarinay.github.io
